@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning n/a
 - 💞️ I’m looking to collaborate on n/a
 - 📫 How to reach me n/a
-- 😄 Pronouns: n/a
 - ⚡ Fun fact: n/a
 
 <!---
