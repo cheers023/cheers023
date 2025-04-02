@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cheers023
-- 👀 I’m interested in Mobile Apps, Games and AI development
+- 👀 I’m interested in Mobile Apps, Games and Web development
 - 🌱 I’m currently learning n/a
 - 💞️ I’m looking to collaborate on n/a
 - 📫 How to reach me n/a
